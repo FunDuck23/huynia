@@ -1,2 +1,2 @@
 # huynia
-huynia from huynii
+sosi pisos sosok
